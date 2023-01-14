@@ -1,1 +1,1 @@
-# dealbenz.blogspot.com
+# dealbenz.blogspot.io
